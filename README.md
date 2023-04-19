@@ -1,1 +1,1 @@
-# twake.cosmos
+# twake.xyz
